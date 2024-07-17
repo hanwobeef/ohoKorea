@@ -1,2 +1,3 @@
 <h1>ohoKorea</h1>
-![image](https://github.com/user-attachments/assets/a22763ad-7fa9-48fc-93ae-4548b6b7a906)
+![image](https://github.com/user-attachments/assets/665f2a02-e670-4879-bd20-ea89668ef383)
+
